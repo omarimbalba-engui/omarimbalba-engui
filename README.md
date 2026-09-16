@@ -16,7 +16,7 @@ Currently preparing for Alberta, Canada engineering career path and APEGA certif
 - Tools: Wrenches, Welding, Hydraulics
 
 ### Education
-- Diploma in Mechanical Engineering Technology [Your College Name]
+- Diploma in Mechanical Engineering Technology NITA
 - Kenya
 
 ### Goals for Alberta
